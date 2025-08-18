@@ -1,4 +1,4 @@
-#_**👋 Hi, I’m @sunshine-2-me**_
+#_**👋 Hi, I’m @sunshine-2-me. I love Pepsi.**_
 
 ##_**📫 How to reach me**_
 
